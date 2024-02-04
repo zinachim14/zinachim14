@@ -5,8 +5,7 @@
 - 💞️ I’m looking to collaborate with companies and business owners 
       to bring solutions to their data problems. ...
       I love reading, working with numbers and travelling.
-- 📫  How to reach me [Linkedin] 
-      (https://de.linkedin.com/in/chinyere-agatha-ijomah). ...
+- 📫  How to reach me [LinkedIn](https://www.linkedin.com/public-profile/settings)
  
       
   
